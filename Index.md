@@ -1,5 +1,11 @@
 **Discipline**
 
+## Process
+
+- [Rough Draft](rough-draft.md)
+- [First Draft](first-draft.md)
+- [Revision](revision.md)
+
 Discipline, at first glance, might seem like a negative word, but to me, it's something very important. ​We often hear discipline used in a negative way, like when we say, "this child has no discipline." But it's more accurate to say that the child might be ill-mannered. Children are not naturally undisciplined; they rely on their parents to guide them because they're not as aware as adults.I know I'm not as disciplined as I'd like to be, and it's frustrating when people are surprised that I do sports or eat what I consider a normal, balanced meal. People have become less disciplined in their lives. What I describe as my usual lunch, they call “too healthy”. Discipline is something that is hard, but at the same time it's something you need. It doesn't mean to be a soldier and to get screamed at by a moron with a "better " badge than you... what i mean is to take care of yourself. Having discipline to go out once in a while, to keep doing what you started, do the things you said you would. 
 
 The importance of self-discipline is huge. It builds you, it makes you go further in life. Because if you stay focused, you improve yourself and accomplish your goals.  
