@@ -31,7 +31,8 @@ So i droped out. Few years later here i am, making questionable 3D models.
 ![Photo of a brown dog with its tongue out](DEC01210.jpg)
 ![Photo of a brown dog with its tongue out](DEC01644.jpg)
 
-here is some of my photography. I sometimes do photos for a rescue shelter to help rehome animals.
+
+here is some of my photography. I sometimes do photos for a rescue shelter to help rehome animals. I always loved to take photos and always dreamed of having a camera, and now that i have acces to good camera, i don't really have the time, funny huh? I love helping animals, in one way or the other, so this is one of them. 
 
 
 
