@@ -39,7 +39,9 @@ here is some of my photography. I sometimes do photos for a rescue shelter to he
 
 ![snaphot from a short 3d movie, robot walking towards us, while two robots sit on the ground](IMG_1793.PNG)
 
-Here is a snaphot from my short movie. It's about robots that try to safe our planet after all humans are gone. 
+Here is a snaphot from my short movie. It's about robots that try to safe our planet after all humans are gone. The idea started as a story of a scavanger robot and his friend cat, but God it's hard to model and animate a cat. So here we are, robots, apocalypsis, all the fun stuff. 
+
+###THANK YOU
 
 
 
