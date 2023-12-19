@@ -13,7 +13,7 @@ I studied at a french school, a hell on earth, haha. I do speak 5 laguages, but 
 People will tell me i shouldn't underestimate myself, but call me arogant for being proud of myself. They tell me to plan my future, but call my dreams "ridiculous".
 So It's hard to describe who i am at the moment as i am so many things and nobody at all, but i'm going to tell you what i aspire to be. I aspire to be a 3D artist, an illustrator, an athlete.
 
-I love sports, i'm in a track team, i run long disatnces and i do sprints. I used to do horse riding, and i loved it but had to give it up. 
+I love sports, i'm on a track team, i run long disatnces and i do sprints. I used to do horse riding, and i loved it but had to give it up. 
 
 I love animals, i have a few. I have a horse, few cats, two dogs, two bunnies. - love them more than anything.
 
