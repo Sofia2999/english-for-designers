@@ -3,7 +3,7 @@
 
 ## About
 
-![Image of a girl running, shot fro high engle](IMG_1870.HEIC)
+![Image of a girl running, shot fro high engle](IMG_1870.jpg)
 
 Hi, i'm Sofia.
 Unlike others i don't really know who i am. I don't have any cool work expirience, my only projects are the school ones or my personal ones.
