@@ -1,7 +1,3 @@
-# english-for-designers
+# English for Designers
 
-first-draft.md
-
-index.md
-
-Revision.md
+- [Storytelling](05-storytelling)
