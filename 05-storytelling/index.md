@@ -1,8 +1,10 @@
-# Title
+# Storytelling
+
+Hello, here you can find a video and slides to my storytelling. Enjoy.
 
 - [Watch Video](assets/the-one.mp4)
-- [View Slides](assets/the-one.pdf)
+- [View Slides](assets/slidesstory.pdf)
 
-This some text.
 
-![Alternative text description of the image.](assets/the-one.png)
+
+
