@@ -4,7 +4,7 @@
 ![a selfie of me and my horse](assets/IMG_1731.HEIC)
 
 
-**Friendly** 
+i consider myself **Friendly** but i feel like sometiomes i can seem mean, or unfriendly on 
 **Monotone**
 
 ## Tone
