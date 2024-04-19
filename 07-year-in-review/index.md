@@ -5,5 +5,16 @@ The first thought that come to my head are very negative, not many good things h
 
  All that aside... let's add a few possitive words into this essey. 
 
-I did learned a lot of things. I did find peace (to some extent). I got to know Me a little more. So what did i learn? And how?
+I did learned a lot of things. I did find "peace" (to some extent). I got to know Me a little more. Sometimes all this complaining seems stuppid. Nobody cares! But it would be lying if i said this year was amazing and full of memories. No. It sucked. But life goes on. There is a song, and the lyrics go 
+"a 100 bad days made a 100 good stories, 100 good storie make me intresting at parties". And i do not party, but i do love this sentence. 
 It's not all about "learning", but also about finding a way, acceptind and changing. 
+
+
+
+
+
+
+
+
+
+
