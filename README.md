@@ -4,4 +4,4 @@
 
 - [Voice, tone and style](04-voice-tone-style)
 
-- [Voice, tone and style](07-yearinreview)
+- [Year in review](07-yearinreview)
