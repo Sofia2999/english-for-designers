@@ -15,7 +15,7 @@ I did learned a lot of things. I got to know Me a little more. Sometimes all thi
 I got back to photography and found passion for videography. I try to update my portfolio to maybe do videography/cinematography professionaly. 
 
 
-
+- [Watch Video](https://www.instagram.com/reel/C5_pVnHrcTz/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==)
 
 
 
