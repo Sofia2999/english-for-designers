@@ -10,9 +10,12 @@ Everyone says that it's okey! But why do i feel like it's not! I doesen't feel o
 
 **What i learned?**  
 
-I did learned a lot of things. I got to know Me a little more. Sometimes all this complaining seems stuppid. Nobody cares! But it would be lying if i said this year was amazing and full of memories. No. It sucked. But life goes on. There is a song, and the lyrics go 
-"a 100 bad days made a 100 good stories, 100 good storie make me intresting at parties". And i don't party, but i do love this sentence. 
-I got back to photography and found passion for videography. I try to update my portfolio to maybe do videography/cinematography professionaly. But eith all the school stuff that needs to be done, i have to put it on hold. I have no time, but i still try to make small projects once in a while. 
+I did learned a lot of things. I got to know Me a little more. Sometimes all this complaining seems stupid. Nobody cares! But i would be lying if i said this year was amazing and full of memories. No. It sucked. But life goes on. There is a song, and the lyrics go 
+"a 100 bad days made a 100 good stories, 100 good stories make me intresting at parties". And i don't party, but i do love this sentence. 
+I got back to photography and found passion for videography. I try to update my portfolio to maybe do videography/cinematography professionaly. But with all the school stuff that needs to be done, i have to put it on hold. I have no time, but i still try to make small projects once in a while. 
+Maybe i take it too personaly but i get sad when i show my videos to my familly and they look at me like it's a huge wate of time. Oh well, what can i do.
+
+So to end this on a happy-ish note, note to myself: YOU WILL BE FINE! STOP CRYING SO MUCH. :) HAHA
 
 - [Watch Video](https://www.instagram.com/reel/C5_pVnHrcTz/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==)
 - [Watch Video](https://www.instagram.com/reel/C6CZoRLLwyG/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==)
