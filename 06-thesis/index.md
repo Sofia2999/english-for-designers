@@ -5,4 +5,3 @@ As my thesis is far from done at the moment here is a "pitch like" presentation 
 - [View Slides](english-for-designers/assets/thesis.pdf)
 - [View Video](...) Coming soon
 
-![Description of image.](assets/image.jpg)
